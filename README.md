@@ -1,2 +1,0 @@
-
-ermo's blog
